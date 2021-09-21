@@ -1,0 +1,2 @@
+# virtex_ganas_asu
+VIRTEX GANAS JAN SOK KERAS, LU GANTI GUA TENDANG
